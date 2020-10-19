@@ -1,4 +1,6 @@
 high quality music and pop. moslty!
+![ezgif-1-3315c6511fe3](https://user-images.githubusercontent.com/59117342/96490363-53f93980-125e-11eb-99cd-685af03f2233.gif)
+
 ![Screenshot (269)](https://user-images.githubusercontent.com/59117342/91840955-27b63900-ec6f-11ea-873b-cf7e77c040b8.png)
 ![Screenshot (270)](https://user-images.githubusercontent.com/59117342/91840957-297ffc80-ec6f-11ea-8360-6e1f49f72be7.png)
 ![Screenshot (271)](https://user-images.githubusercontent.com/59117342/91840960-2a189300-ec6f-11ea-8805-47ef2a25e7ec.png)
